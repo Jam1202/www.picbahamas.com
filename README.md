@@ -1,1 +1,1 @@
-# picbahamas.github.io
+www.picbahamas.com
